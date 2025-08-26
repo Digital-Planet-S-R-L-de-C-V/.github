@@ -38,6 +38,7 @@ Tus necesidades, nuestras ideas...
 
 📧 ventas@digitalplanethn.com  
 📱 +504 3153-3458
-🌐 [www.digitalplanet.hn](https://www.digitalplanet.hn)
+🌐 [www.digitalplanethn.com](www.digitalplanethn.com)
+
 
 
